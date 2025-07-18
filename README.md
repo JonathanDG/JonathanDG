@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **jonathandg23@gmail.com**
 
-- 📄 Know about my experiences [I've worked in Mercedez Benz Star patria as TI Engineer](I've worked in Mercedez Benz Star patria as TI Engineer)
+- 📄 Know about my experiences I've worked in Mercedez Benz Star patria as TI Engineer
 
 - ⚡ Fun fact **I love board games**
 
